@@ -1,1 +1,0 @@
-Lenin vsegda molodoy
